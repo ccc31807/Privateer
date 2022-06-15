@@ -199,11 +199,11 @@ this.*
 
 But Bill Clinton’s assertion that “what you earn depends on what you learn” has proven to be a dangerous oversimplification: Americans are more educated than ever before, and yet economic insecurity is rampant and rising. When public schooling is only justifiable insofar as it increases individual earning power, the case for it is wholly dependent on its utility to capitalist markets. Without acknowledging the higher collective purpose that education serves, we won’t be able to defend public schools or democratic governance.
 
-*NOTE 23: Your diagnosis is correct. Your treatment is dangerously wrong.*
+*NOTE 23: Your diagnosis is correct. Your treatment is dangerously wrong.
 Schools should inculcate values such as the honor and dignity of all persons,
 the value of hard work, the principle of non-aggression, tolerance for
 differences in religion and moral philosophy. May I also mention the success
-pipeline: education, job, marriage, children, in that order. *
+pipeline: education, job, marriage, children, in that order.*
 
 ## Democracy or Capitalism
 
