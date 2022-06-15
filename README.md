@@ -53,7 +53,7 @@ remaining public goods" is simply laughable. As to Rufo's point, the
 accumulation of power in any form, especially power over education, is evil in
 itself, and private individuals as parents should take responsibility for
 education their own children, and not abdicate that responsibility to
-government-run institutions. *
+government-run institutions.*
 
 The illiberalism that dominates the Right can best be understood as the advanced stage of a long billionaire-funded plot to undo democracy in order to relieve capitalists of any constraints the rest of us might wish to place on them. This understanding clarifies why classrooms, the training grounds for democratic participation, are primary targets of radical right activism. If liberals are to have any hope of countering this coordinated attack, they need to remember the collective, public value of education.
 
