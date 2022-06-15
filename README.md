@@ -214,13 +214,13 @@ pipeline: education, job, marriage, children, in that order.*
 The Right’s appeals to “the family” resonate in part because our oligarchic political system leaves families in the cold, allowing child poverty to soar even as parents spend long and exhausting hours working outside the home. Any effort to save our commons and restore a sense of public spiritedness must include a material response to the significant challenges that parents face.
 
 *NOTE 25: Again, too much to unpack. I believe that parents should love,
-education, and instill moral values in their children. The family is the basis
+educate, and instill moral values in their children. The family is the basis
 for a civilized society, and by "family" I mean a married couple, male and
 female, in a monogamous, permanent union, living together and providing both
 paternal and maternal role models to their children. It is indubitably the
 responsibility of the schools to act as an adunct to parents in order to
 instill these values in the children. It's the responsibility of the parents
-to education their children --- all the schools can do is support the
+to educate their children --- all the schools can do is support the
 parents.*
 
 We need to work fast to reclaim the places where we give one another the benefit of the doubt and collaborate in spite of our differences. Democrats can still enter the battlefield and expose the Right’s deceitful efforts to turn the public against itself. As MacLean argues, the movement Buchanan authored wants to save capitalism from democracy. We can counter it if we are willing to fight to save democracy — beginning with schools — from capitalism.
@@ -230,4 +230,4 @@ well. Democracy can only exist in a capitalist system. Collectivism in all its
 forms necessitates tyranny. The word I would use for capitalism is liberalism,
 but this is another conversation.*
 
-
+*FINAL NOTE: I am absolutely committed to education, and I mean universal, public education. I am also absolutely committed to liberalism, by which I mean the recognition that the individual's life, liberty, and property is the highest value of government. We we usually call "family values" supports both education and liberty. Collectivism attacks all three viciously, because collectivism cannot exist in the face of universal, public education, strong liberal principles, and moral values. Too many "professional educators" fail to recognize this, to the detriment of our schools, both public and private. If this is a call to Kulturkampf, so be it.* 
